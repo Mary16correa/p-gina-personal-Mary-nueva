@@ -1,2 +1,2 @@
-# p-gina-personal-Mary-nueva
+pagina personal mary
 página personal
